@@ -10,7 +10,7 @@
 
 ⏳Currently I'm only a computing student.👩🏻‍💻
 
-☝🏻But I'm always open to new experiences and challenges. I may not got it right at the first time, but I won' give up at first time either.💪🏻
+☝🏻But I'm always open to new experiences and challenges. I may not got it right at the first time, but I won't give up at first time either.💪🏻
 
 *I'm fluent in Portuguese because is my native lenguage but i can speak, write, read and understand English resonably good.*
 -------------------------------------------------------------------------------------------------------------------------------------------
